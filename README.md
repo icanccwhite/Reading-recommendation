@@ -18,5 +18,7 @@
 6. Let It Go: My Extraordinary Story
 
    Stephanie Shirley CH
-7. 傅里叶变换！
- updating...
+7. 麦田里的守望者
+  
+   傅里叶变换！
+   updating...
