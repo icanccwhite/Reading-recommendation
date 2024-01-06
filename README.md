@@ -19,6 +19,11 @@
 
    Stephanie Shirley CH
 7. 麦田里的守望者
-  
+
+   J. D. Salinger
+8. 像恋爱一样去工作
+
+   茅侃侃
+   
    傅里叶变换！
    updating...
