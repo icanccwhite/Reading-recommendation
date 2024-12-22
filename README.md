@@ -17,16 +17,17 @@
    查尔斯·狄更斯
 6. Let It Go: My Extraordinary Story
 
-   Stephanie Shirley CH
+   Stephanie Shirley CH 
 7. 麦田里的守望者
 
-   J. D. Salinger
+   J. D. Salinger 
 8. 像恋爱一样去工作
 
-   茅侃侃
+   茅侃侃 
 9. 人性的弱点
 
-   戴尔 卡耐基 
+   戴尔 卡耐基
+    
 10.文学回忆录
 
    木心
